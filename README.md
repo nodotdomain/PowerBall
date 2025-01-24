@@ -30,4 +30,4 @@ You can download and use the PowerBall Filter System for free, with limited opti
 Register PowerBall Filter System Now!
 Ready to get into the Winner's Circle? Get all the inside advantages from our decades of development. You have the PowerBall lottery at your fingertips. Act fast before winnings are split.
 
-https://powerballfiltersystem.com/payment.php
+https://powerballfiltersystem.com/download.php
